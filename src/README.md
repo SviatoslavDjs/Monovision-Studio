@@ -1,1 +1,0 @@
-Monovision Studio
